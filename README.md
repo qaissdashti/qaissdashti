@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @qaissdashti
-- 👀 I’m interested in Statistics, Data Science, Software development and Space. 
+- 👀 I’m interested in Statistics, Data Science, Software development and everything Elon Musk creates. 
 
 
 <!---
